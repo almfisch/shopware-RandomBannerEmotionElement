@@ -1,0 +1,1 @@
+Random Banner Emotion-Element
